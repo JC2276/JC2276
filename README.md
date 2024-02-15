@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JC2276
+- I’m @JC2276
 - Tech Cars And Electricity
 - Cybersecurity
 - Email For Contact
